@@ -2,9 +2,9 @@
 
 ***
 
-You either win with us or you watch us win
+1. En ksn alrb ma'na f mn a'lina?
 
-This line from branch: branch_in_new_branch
+2. Akrm abak w omak ky tatol ayamk a'la alard.
 
-This line from branch: branch_in_new_branch
+3. 7b alrb elahak mn kol kalbak e fekrak.
 
