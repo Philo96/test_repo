@@ -1,11 +1,6 @@
-# Test repo
-### This is a test repo for the new project
-#### Have fun
-##### Another edit
-###### Maybe another edit :)
+# GOD'S PLAN
 
-Have fun ....
+***
 
-Let's have some fun and say I'm funny.
+You either win with us or you watch us win
 
-Hallo Welt
