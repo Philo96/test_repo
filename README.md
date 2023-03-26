@@ -1,10 +1,7 @@
 # GOD'S PLAN
 
 ***
-
-You either win with us or you watch us win
-
-Have fun, enjoy your life and be ready for more :)
+En kan alrb ma'na f mn a'lina?
 
 Have fun, enjoy your life and be ready for more :)
 
