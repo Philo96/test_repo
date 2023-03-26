@@ -12,3 +12,5 @@
 
 5. En kont ll aatham rasedan ya rab, ya rab mn yathbot? lan mn 3ndk wlmaghfera.
 
+6. Ela mta antazerak ya rb?
+
