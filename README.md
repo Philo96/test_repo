@@ -12,5 +12,7 @@
 
 5. En kont ll aatham rasedan ya rab, ya rab mn yathbot? lan mn 3ndk wlmaghfera.
 
-6. En sert fy wady zel elmot la a5af 4aran, laanak anta ma'y.
+6. Ela mta antazerak ya rb?
+
+7. En sert fy wady zel elmot la a5af 4aran, laanak anta ma'y.
 

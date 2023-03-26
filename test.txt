@@ -1,3 +1,11 @@
 Hallo, Welt !
 
+<<<<<<< HEAD
+Na, :)
+
+Naa, :)
+
+Naaa, :)
+=======
+>>>>>>> new_test_branch
 
