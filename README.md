@@ -14,3 +14,5 @@
 
 6. En sert fy wady zel elmot la a5af 4aran, laanak anta ma'y.
 
+Have fun, enjoy your life and be ready for more :)
+
