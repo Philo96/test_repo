@@ -16,3 +16,5 @@
 
 7. En sert fy wady zel elmot la a5af 4aran, laanak anta ma'y.
 
+8. L takon 3aynak mafto7atan 3la haza albayt leiln w naharan.
+
